@@ -34,11 +34,11 @@ b
 ### Some 18+ content link & Manga:
 
 Hentie manga 
-• https://hentaifox.com/gallery/133191/
-• https://hentaifox.com/gallery/133149/
-• https://hentaifox.com/gallery/132904/
-• https://hentaifox.com/gallery/132266/
-• https://hentaifox.com/gallery/132667/
+* https://hentaifox.com/gallery/133191/
+* https://hentaifox.com/gallery/133149/
+* https://hentaifox.com/gallery/132904/
+* https://hentaifox.com/gallery/132266/
+* https://hentaifox.com/gallery/132667/
 • https://hentaifox.com/gallery/132527/
 • https://hentaifox.com/gallery/132482/
 • https://hentaifox.com/gallery/113807/
@@ -56,7 +56,7 @@ Hentie manga
 • 
 • 
 
-color hentie manga
+### Color hentie manga
 • https://hentaifox.com/gallery/133225/
 • https://hentaifox.com/gallery/98404/
 • https://hentaifox.com/gallery/118789/
@@ -70,19 +70,13 @@ color hentie manga
 <hr>
 
 
-List of gold:  
+### List of gold:  
 • https://xhamster.com/videos/desi-beautiful-teacher-teaching-sex-lessons-hindi-drama-xhg0II7
 • https://fr.pornhub.com/view_video.php?viewkey=6535b8e45b196
 • https://fr.pornhub.com/view_video.php?viewkey=65411c5209bf3
 • https://fr.pornhub.com/view_video.php?viewkey=ph631f36d42e477
 • Nice = https://fr.pornhub.com/view_video.php?viewkey=ph61c909188b8b1
 • Speed new= https://fr.pornhub.com/view_video.php?viewkey=6421e9bc80e04
-
-Anime:
-• https://fr.pornhub.com/view_video.php?viewkey=65134b3a64c3e
-• https://fr.pornhub.com/view_video.php?viewkey=ph6043faf86009c
-• https://fr.pornhub.com/view_video.php?viewkey=ph613266cb720f7
-
 
 .........
 • https://khabarbabal.online/file/ZWQ0NWU3MzAt
@@ -91,7 +85,7 @@ Anime:
 • https://ok.porn/sites/scoreland/
 
 
-Fav video:
+### Fav video:
 
 • https://ok.porn/video/106671/
 • https://ok.porn/video/34480/
