@@ -1,4 +1,4 @@
-the arithmetical symbol 0 or 0̸ denoting the absence of all magnitude or quantity
+The arithmetical symbol 0 or 0̸ denoting the absence of all magnitude or quantity
 b
 : additive identity
 specifically : the number between the set of all negative numbers and the set of all positive numbers
@@ -27,11 +27,8 @@ b
 6
 : something arbitrarily or conveniently designated zero
 
-_____________________
 
-
-### This is 18+ content. Warning!! 
-18+ Link : https://1drv.ms/f/s!AsbK1y6dPAIIaolZzXDM-3vi-mc
+<hr>
 
 
 ### Some 18+ content link & Manga:
@@ -65,12 +62,12 @@ color hentie manga
 • https://hentaifox.com/gallery/118789/
 • https://hentaifox.com/gallery/133332/
 • 
-• 
 
 
+### This is 18+ content. Warning!! 
+18+ Link : https://1drv.ms/f/s!AsbK1y6dPAIIaolZzXDM-3vi-mc
 
-https://youtube.com/playlist?list=PLKrvqP8Fb539VxWaNG0uduOi1AMzKQfYM&si=l1d35cTXY_h2OV9A
-
+<hr>
 
 
 List of gold:  
@@ -122,7 +119,7 @@ Fav video:
 • https://ok.porn/video/107162/
 • https://ok.porn/video/155975/
 
-Stars:
+### Stars:
 
 • Kyler Quinn = https://ok.porn/video/15354/ https://ok.porn/video/118248/
 • Ailee Anne = op https://ok.porn/video/106668/ https://ok.porn/video/117013/ https://ok.porn/video/144344/ 
