@@ -33,6 +33,14 @@ b
 
 ### Some 18+ content link & Manga:
 
+### Best Hentie episodes:
+* [Netoraserare 2](https://hanime.tv/videos/hentai/netoraserare-2?playlist_id=liked-videos-cnjte0n2zi3q)
+*    [Hitozuma](https://hanime.tv/videos/hentai/tanetsuke-ojisan-to-ntr-hitozuma-sex-1?playlist_id=liked-videos-cnjte0n2zi3q)
+*   [Hajimete no Hitozuma 6](https://hanime.tv/videos/hentai/hajimete-no-hitozuma-6?playlist_id=liked-videos-cnjte0n2zi3q)
+*   [Mistreated Bride 1](https://hanime.tv/videos/hentai/mistreated-bride-1?playlist_id=liked-videos-cnjte0n2zi3q)
+*   
+
+
 ### Hentie Manga: 
 * https://hentaifox.com/gallery/133191/  
 * https://hentaifox.com/gallery/133149/
