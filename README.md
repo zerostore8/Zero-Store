@@ -34,11 +34,16 @@ b
 ### Some 18+ content link & Manga:
 
 ### Best Hentie episodes:
-* [Netoraserare 2](https://hanime.tv/videos/hentai/netoraserare-2?playlist_id=liked-videos-cnjte0n2zi3q)
-*    [Hitozuma](https://hanime.tv/videos/hentai/tanetsuke-ojisan-to-ntr-hitozuma-sex-1?playlist_id=liked-videos-cnjte0n2zi3q)
-*   [Hajimete no Hitozuma 6](https://hanime.tv/videos/hentai/hajimete-no-hitozuma-6?playlist_id=liked-videos-cnjte0n2zi3q)
-*   [Mistreated Bride 1](https://hanime.tv/videos/hentai/mistreated-bride-1?playlist_id=liked-videos-cnjte0n2zi3q)
-*   [Enbo: Taboo Charming Mother 3](https://hanime.tv/videos/hentai/enbo-taboo-charming-mother-3?playlist_id=liked-videos-cnjte0n2zi3q)
+* [Netoraserare 2](https://hanime.tv/videos/hentai/netoraserare-2)
+*    [Tanetsuke Ojisan to NTR Hitozuma Sex 1](https://hanime.tv/videos/hentai/tanetsuke-ojisan-to-ntr-hitozuma-sex-1)
+*   [Hajimete no Hitozuma 6](https://hanime.tv/videos/hentai/hajimete-no-hitozuma-6)
+*   [Mistreated Bride 1](https://hanime.tv/videos/hentai/mistreated-bride-1)
+*   [Enbo: Taboo Charming Mother 3](https://hanime.tv/videos/hentai/enbo-taboo-charming-mother-3)
+*   [Kyonyuu Elf Oyako Saimin 1](https://hanime.tv/videos/hentai/kyonyuu-elf-oyako-saimin-1)
+*   [Sagurare Otome](https://hanime.tv/videos/hentai/sagurare-otome)
+*   [Mesu Saga - Persona 1](https://hanime.tv/videos/hentai/mesu-saga-persona-1)
+*   [Hajimete no Hitozuma 2](https://hanime.tv/videos/hentai/hajimete-no-hitozuma-2)
+*   [Sagurare Otome](https://hanime.tv/videos/hentai/sagurare-otome)
 *   
 *   
 
