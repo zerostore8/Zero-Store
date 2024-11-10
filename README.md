@@ -105,8 +105,7 @@ b
 
 <hr>
 
-### This is 18+ content. Warning!! 
-18+ one drive Link: https://1drv.ms/f/s!AsbK1y6dPAIIaolZzXDM-3vi-mc
+18+ Link (Warning ): https://1drv.ms/f/s!AsbK1y6dPAIIaolZzXDM-3vi-mc
 
 
 
