@@ -103,9 +103,6 @@ b
 * Mazzy grace
 * Lauren Phillips
 
-<hr>
-
-18+ Link (Warning ): https://1drv.ms/f/s!AsbK1y6dPAIIaolZzXDM-3vi-mc
 
 
 
